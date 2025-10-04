@@ -1,0 +1,1 @@
+# Tokenized-Fair-Trade-Certification-for-Smallholder-Farmers
